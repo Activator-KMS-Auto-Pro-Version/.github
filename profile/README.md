@@ -1,4 +1,4 @@
-# Activator KMS Auto Pro 2025
+# Activator KMS Auto Pro Version
 The KMSAuto activator boasts several iterations, each loaded with upgraded functionality. To ensure optimal performance, it's highly recommended that you employ the most current KMSAuto version. Once activation completes, a system reboot is required. The approximate duration of the whole activation sequence is approximately three minutes.
 
 <img width="438" height="44" alt="34564527" src="https://github.com/user-attachments/assets/20691a22-210c-4659-bc44-969945f58170" />
